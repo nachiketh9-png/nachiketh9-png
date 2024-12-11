@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nachiketh9-png
+- 👋 Hi, I’m @nachiketh8217-png
 - 👀 I’m interested in ... IT
 - 🌱 I’m currently learning ... student
 - 💞️ I’m looking to collaborate on ... IT company
